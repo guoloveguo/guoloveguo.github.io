@@ -1,0 +1,2 @@
+# guoloveguo.github.io
+life
